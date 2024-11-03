@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Jessica-UG
+- 👋 Hola, yo soy  @Jessica-UG
 - 👀 Estoy interesada en utilizar nuevas herramientas digitales para las clases que imparto.
 - 🌱 Estoy aprendiend acerca de asana.
 - 💞️ Busco colaboradores para un proyecto de mi doctorado.
